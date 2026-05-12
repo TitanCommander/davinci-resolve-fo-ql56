@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with advanced DaVinci Resolve for PC | DaVinci Resolve for Windows Preset | motion-tracking + LUT-support, the #1
 
 
 
